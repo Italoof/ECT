@@ -12,7 +12,7 @@ Joanderson Lucas
 
 Hemerson Rafael P. Pontes - hrpp@ufrn.edu.br
 
-...
+Ítalo Oliveira Fernandes 
 
 ------------------------------------------------------
 
